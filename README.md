@@ -1,0 +1,2 @@
+# FOREXING
+Doing market analysis
